@@ -1,0 +1,1 @@
+Ini Adalah Mini Projek saya, Atas nama Seyra Safkia Ohoirenan
